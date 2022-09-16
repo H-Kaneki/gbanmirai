@@ -1,1 +1,1 @@
-# GBan nhưng méo ban out ai
+# GBan nhưng méo ban out ai:)
